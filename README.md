@@ -1,0 +1,2 @@
+# czygynvaelstreamuje
+stronka informacyjna
